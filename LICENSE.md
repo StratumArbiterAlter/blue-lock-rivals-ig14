@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with blue lock rivals hidden Script, the #1 Script. Includes instant win and undetectable for
 
 
 
